@@ -1,1 +1,1 @@
-"# Card†pio Eletrìnico" 
+"# Card√°pio Eletr√¥nico" 
